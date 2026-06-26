@@ -15,7 +15,7 @@
 *   البريد الإلكتروني: [alhadaeihelal@gmail.com](mailto:alhadaeihelal@gmail.com)
 *   تابع نشاطي المهني عبر فيسبوك: [https://www.facebook.com/share/14jx133Cr2u/]
 للتواصل واتس
-https://wa.me/967779250946?utm_source=chatgpt.com
+https://wa.me/967779250946utm_source=chatgpt.com
 او اتصال على رقمي <a href="tel:+967779250946">اتصل بنا</a>
 ---
 *مهتم بتبادل الخبرات في مجالات الهندسة والتقنية.*
