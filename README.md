@@ -14,6 +14,6 @@
 ### 📱 تواصل معي:
 *   البريد الإلكتروني: [alhadaeihelal@gmail.com](mailto:alhadaeihelal@gmail.com)
 *   تابع نشاطي المهني عبر فيسبوك: [https://www.facebook.com/share/14jx133Cr2u/]
-
+https://wa.me/967779250946?utm_source=chatgpt.com
 ---
 *مهتم بتبادل الخبرات في مجالات الهندسة والتقنية.*
